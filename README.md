@@ -1,2 +1,2 @@
 # WE are BingBongBomi Ltd.
-WE are the baka collective. 
+WE are ALL Baka Collective
